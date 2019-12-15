@@ -11,6 +11,7 @@
 - You can [catch a cold from being in a place where humidity is too low](http://www.sensorpush.com/articles/the-effects-of-low-humidity-on-your-health-and-comfort). It works by drying up your mucous membranes. Low humidity also leads to dry eyes, skin problems, and infection in these areas.
 - Smoking [protects you](https://io9.gizmodo.com/here-are-the-ways-smoking-may-actually-be-good-for-yo-1721438933) against Parkinson's disease, where the nicotine protects neurons against degeneration.
 - [Shakeout runs](https://runnersconnect.net/coach-corner/lactate-clearance/), where you "shake out the lactate", supposedly helps with post-exercise pain. Someone who can run please confirm.
+- [ear infection in babies] (https://www.myhealthgist.com.ng/2019/12/ear-infection-in-babies.html). Everything you must know about ear infection 
 - [Kombucha "昆布茶" is a misused loanword from Japanese](https://en.wikipedia.org/wiki/Kombucha). There is no kelp in kombucha. The symbiotic culture of bacteria and yeast (SCOBY) forms a mass of goo known as a "mother".
 - Turns out [putting your wrist on your wrist rest](https://www.ccohs.ca/oshanswers/ergonomics/office/wrist.html) can itself cause carpal tunnel syndrome. Whatever approach you try, the aim is to keep your wrist straight.
 - It is not completely out of reason that the caterpillar makes cocoons because [it thought the world was ending](https://www.passiton.com/inspirational-quotes/6539-just-when-the-caterpillar-thought-the-world-was). From its perspective, it does not necessarily know about butterflies.
